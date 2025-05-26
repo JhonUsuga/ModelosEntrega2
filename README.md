@@ -6,3 +6,5 @@
 - Luis Eduardo Fajardo Rivera
 - Cédula: 1055315942
 - Ingeniería Industrial
+
+Link del video: https://www.youtube.com/watch?v=rsR0GSmrUTE
